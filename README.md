@@ -2,3 +2,4 @@
 All good idea for a better world are welcome. I will share here mine 
 world with egality
 without war
+with love 
