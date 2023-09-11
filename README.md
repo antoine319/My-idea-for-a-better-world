@@ -4,3 +4,4 @@ world with egality
 without war
 with love 
 with friends
+without violence
