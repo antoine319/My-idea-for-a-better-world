@@ -5,3 +5,4 @@ without war
 with love 
 with friends
 without violence
+without murder
