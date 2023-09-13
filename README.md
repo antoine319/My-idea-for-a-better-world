@@ -6,3 +6,4 @@ with love
 with friends
 without violence
 without murder
+with justice
