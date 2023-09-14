@@ -7,3 +7,4 @@ with friends
 without violence
 without murder
 with justice
+without race distinction
