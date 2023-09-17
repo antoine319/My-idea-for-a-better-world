@@ -8,3 +8,4 @@ without violence
 without murder
 with justice
 without race distinction
+without  corruption
