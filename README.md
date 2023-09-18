@@ -9,3 +9,4 @@ without murder
 with justice
 without race distinction
 without  corruption
+with fate
