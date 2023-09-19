@@ -10,3 +10,4 @@ with justice
 without race distinction
 without  corruption
 with fate
+without blackmail
