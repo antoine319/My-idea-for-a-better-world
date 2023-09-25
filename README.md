@@ -12,3 +12,4 @@ without  corruption
 with fate
 without blackmail
 without injustice
+without poverty
