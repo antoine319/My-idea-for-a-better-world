@@ -15,3 +15,4 @@ without injustice
 without poverty
 with help
 with good behavior
+without madness
