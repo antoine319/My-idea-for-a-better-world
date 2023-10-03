@@ -16,3 +16,4 @@ without poverty
 with help
 with good behavior
 without madness
+without weapon
