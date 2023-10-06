@@ -17,3 +17,4 @@ with help
 with good behavior
 without madness
 without weapon
+with water for all
