@@ -18,3 +18,4 @@ with good behavior
 without madness
 without weapon
 with water for all
+with food for all
