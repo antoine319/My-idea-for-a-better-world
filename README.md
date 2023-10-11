@@ -20,3 +20,4 @@ without weapon
 with water for all
 with food for all
 with no sex distinction
+with no disease
