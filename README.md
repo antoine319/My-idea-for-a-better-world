@@ -22,3 +22,4 @@ with food for all
 with no sex distinction
 with no disease
 with happiness everywhere
+with no bulying
