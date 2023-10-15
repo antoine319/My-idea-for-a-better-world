@@ -23,3 +23,4 @@ with no sex distinction
 with no disease
 with happiness everywhere
 with no bulying
+without fight
