@@ -29,4 +29,4 @@ with no insult
 with good family
 with good neighbour
 with nature community
-without no home people
+without no homeless people
