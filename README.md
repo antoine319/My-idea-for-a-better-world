@@ -32,3 +32,4 @@ with nature community
 without no homeless people
 with joy
 with happiness
+without madness
