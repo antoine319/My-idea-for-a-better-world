@@ -34,3 +34,4 @@ with joy
 with happiness
 without madness
 without money
+without bad people
