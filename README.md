@@ -39,4 +39,4 @@ with good people
 with good animals
 withtout mosquitos
 without bully
-iwithout mean people
+without mean people
