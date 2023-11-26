@@ -40,3 +40,4 @@ with good animals
 withtout mosquitos
 without bully
 without mean people
+with conviviality
