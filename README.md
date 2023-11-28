@@ -42,3 +42,4 @@ without bully
 without mean people
 with conviviality
 with good family
+without big corporation
