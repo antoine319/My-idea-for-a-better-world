@@ -46,3 +46,4 @@ without big corporation
 without addiction
 without drogue
 without depression
+without injuries
