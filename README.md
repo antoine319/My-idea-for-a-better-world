@@ -49,3 +49,4 @@ without depression
 without injuries
 without problems
 without psycho problem
+without terrorism
