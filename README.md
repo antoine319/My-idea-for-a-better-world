@@ -52,3 +52,4 @@ without psycho problem
 without terrorism
 without religion conflict
 without mental disability
+without accident
