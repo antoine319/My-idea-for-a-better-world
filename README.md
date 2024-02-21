@@ -60,5 +60,6 @@ with good music
 with  good divertising
 with joy
 with love
+with fan
 with my girlfriend
 with my friend
