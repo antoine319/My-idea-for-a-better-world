@@ -66,3 +66,4 @@ with my friend
 with my family
 with good people
 kind people
+with no corruption
